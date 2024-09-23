@@ -1,3 +1,0 @@
-Katia Abdul Baki 30203923
-
-This assignment is about ....
